@@ -1,0 +1,5 @@
+- Hi, I’m JossiefXD
+- I’m interested in HTML, CSS, JavaScript, 
+- I’m currently learning JavaScript
+- I’m looking to collaborate on YouTube
+- you can reach me on discord: Jossiefxd#2399
